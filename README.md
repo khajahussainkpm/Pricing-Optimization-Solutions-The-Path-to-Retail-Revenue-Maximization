@@ -28,8 +28,13 @@ The research conducted by Grozeo, under the leadership of their CEO, Khaja Hussa
 
 ## A Look at the Future
 
-When talked to Mr Khaja Hussian, he was very excited about the future of pricing optimization solutions and their transformative potential for the retail industry. These solutions are not merely tools but strategic partners in pursuing revenue maximization.
+When talked to Mr. Khaja Hussain, he was very excited about the future of pricing optimization solutions and their transformative potential for the retail industry. These solutions are not merely tools but strategic partners in pursuing revenue maximization.
 
 Finally, pricing optimization solutions have emerged as the linchpin of revenue maximization for retailers in today's dynamic and competitive landscape. They offer the means to intelligently price products and services, adapt to changing customer preferences, and stay one step ahead of the competition. As we move forward, the role of these solutions in driving growth and profitability for retailers is only set to expand. If you want to learn more about the latest trends, market maturity, and major vendors in the pricing optimization solution space, I invite you to explore our latest report.
 
-In this ever-evolving
+In this ever-evolving world of retail, where every penny counts, pricing optimization solutions are proving to be the guiding light that helps retailers chart a course to sustainable revenue growth and financial success. So, embrace the power of pricing optimization and watch your retail empire thrive in an era of unprecedented challenges and opportunities.
+
+**Khaja Hussain**
+*CEO of Grozeo*
+
+Khaja Hussain, CEO & Co-founder of Grozeo, is a visionary serial entrepreneur and the Director of London's Pride Ltd, a dynamic company overseeing diverse ventures. He has expertise in Investment, Administration, and R&D and is instrumental in launching and managing successful business endeavors. His latest venture, Techtadd, excels in digital marketing and software development.
